@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @ALYProdz
+- 👋 Hi, I’m  Wedson PETIT-HOMME (@ALYProdz)
 - 👀 I’m interested in Fullstack Development, Graphics Design, And Data Science.
 - 🌱 I’m currently learning Data for analysis, and Web development.
 - 💞️ I’m looking to collaborate on all of my projects. ANd I work in patnership with IBM.
