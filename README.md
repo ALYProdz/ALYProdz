@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning Data for analysis, and Web development.
 - 💞️ I’m looking to collaborate on all of my projects. ANd I work in patnership with IBM.
 - 📫 How to reach me on linkedin, or email : wedsonpetithomme0@gmail.com
-- How can also reach me out in Whatsapp : 849-388-6735
+- How can also reach me out in Whatsapp : +1 (849) 388-6735
 - On twitter : @WedsonPh97
 - Linkedin : Wedson PETITHOMME
 
